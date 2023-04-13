@@ -6,8 +6,10 @@
 
 👀 View my portfolio here: [Portfolio](https://aprilmurillo.surge.sh/)
 
-📝 Check my resume out here: [Jason's Resume](drive.google.com)
+📝 Check my resume out here: [April's Resume]([
+](https://docs.google.com/document/d/1hsAUF6oq9hGP49M5Y7R4zk--zIiT9-sf/edit?usp=share_link&ouid=102756498097857892383&rtpof=true&sd=true))[
+](https://docs.google.com/document/d/1hsAUF6oq9hGP49M5Y7R4zk--zIiT9-sf/edit?usp=share_link&ouid=102756498097857892383&rtpof=true&sd=true)
 
-💬 Message me here: [Linkedin](https://www.linkedin.com/in/meet-jason-humphrey/)
+💬 Message me here: [Linkedin](https://www.linkedin.com/in/april-murillo/)
 
-📫 Reach me via email: [jason.humphrey@codingcareerfastlane.com](mailto:jason.humphrey@codingcareerfastlane.com)
+📫 Reach me via email: [freyderapril@gmail.com](mailto:freyderapril@gmail.com)
