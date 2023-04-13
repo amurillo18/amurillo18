@@ -6,9 +6,7 @@
 
 👀 View my portfolio here: [Portfolio](https://aprilmurillo.surge.sh/)
 
-📝 Check my resume out here: [April's Resume]([
-](https://docs.google.com/document/d/1hsAUF6oq9hGP49M5Y7R4zk--zIiT9-sf/edit?usp=share_link&ouid=102756498097857892383&rtpof=true&sd=true))[
-](https://docs.google.com/document/d/1hsAUF6oq9hGP49M5Y7R4zk--zIiT9-sf/edit?usp=share_link&ouid=102756498097857892383&rtpof=true&sd=true)
+📝 Check my resume out here: [April's Resume](https://docs.google.com/document/d/1hsAUF6oq9hGP49M5Y7R4zk--zIiT9-sf/edit?usp=share_link&ouid=102756498097857892383&rtpof=true&sd=true)
 
 💬 Message me here: [Linkedin](https://www.linkedin.com/in/april-murillo/)
 
